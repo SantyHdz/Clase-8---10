@@ -9,3 +9,4 @@ cambio cambiaso
 ajksdiksols
 lero lero leor
 dio
+Ho0la gente delñ yutu suscribanse a mi canañ
